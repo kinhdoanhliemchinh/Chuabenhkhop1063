@@ -1,0 +1,2 @@
+MỘT SỐ TRIỆU CHỨNG VIÊM KHỚP DẠNG THẤP
+https://www.behance.net/gallery/70448843/VIEM-KHP-DNG-THP-NGUYEN-NHAN-TRIU-CHNG-VA-CACH
